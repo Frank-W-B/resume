@@ -1,1 +1,3 @@
-# resume
+# Resume
+
+Thanks for your interest!
